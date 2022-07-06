@@ -4,4 +4,4 @@ This is a book I found by recommendation of someone on YouTube. Surprisingly, it
 ~Art
 
 ## Book
-[Collar and Daniell's First Year Latin](https://ia600300.us.archive.org/4/items/collardaniellsfi00collrich/collardaniellsfi00collrich.pdf)
+[Collar and Daniell's First Year Latin](https://ia600300.us.archive.org/4/items/collardaniellsfi00collrich/collardaniellsfi00collrich.pdf) (archive.org)
